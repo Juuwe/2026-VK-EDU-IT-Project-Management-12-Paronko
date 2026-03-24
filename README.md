@@ -1,1 +1,1 @@
-# 2026-VK-EDU-IT-Project-Management-12-Paronko
+# 2026-VK-EDU-IT-Project-Management
